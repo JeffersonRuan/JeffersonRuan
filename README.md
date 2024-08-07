@@ -9,7 +9,7 @@ Estou em busta de uma vaga na área de Desenvolvimento de Software, com o intuit
 Links para contato:
 
 Linkedin:
-https://www.linkedin.com/feed/?trk=guest_homepage-basic_google-one-tap-submit
+https: https://www.linkedin.com/in/jefferson-ruan-3520b31a2/
 
 WhatsApp:
 62 99112-0773
